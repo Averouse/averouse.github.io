@@ -1,2 +1,2 @@
 # averouse.github.io
-Personalized Portfolio
+Abdullah Averouse Ibnu Sina - 714240027 - 1B - D4 Teknik Informatika
